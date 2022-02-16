@@ -1,1 +1,0 @@
-# newARarrow6cdlip
